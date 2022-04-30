@@ -1,5 +1,5 @@
 
-![alt text](https://steamuserimages-a.akamaihd.net/ugc/1559891726093942691/DCA091F0E5821D0833EF7D8F157381A74E05EE4D/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
+![alt text](https://gifs.eco.br/wp-content/uploads/2021/09/lo-fi-aesthetic-gifs-7.gif)
 <h1 align="center">Hi 🤖, I'm Guilherme Montelli</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=montelli&label=Profile%20views&color=bb09be&style=flat" alt="montelli" /> </p>
 
