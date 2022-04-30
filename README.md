@@ -1,5 +1,5 @@
 
-![alt text](https://i.gifer.com/PPy.mp4)
+![alt text](https://imgur.com/TVdmm2k)
 <h1 align="center">Hi 🤖, I'm Guilherme Montelli</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=montelli&label=Profile%20views&color=bb09be&style=flat" alt="montelli" /> </p>
 
